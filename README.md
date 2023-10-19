@@ -3,7 +3,7 @@ MI primer repositorio en github😁
 mi linea en repositorio                                                                                                               
 actividad con github                                                                                                                            
 Finalizando con github                                                                                                                   
-fin del fin
+fin del finqffa
 f😁
 ....
 QQEQWWR
